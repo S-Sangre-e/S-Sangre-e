@@ -11,7 +11,7 @@
 ---
 ⋆.˚📘༘⋆
 
-- W2i . c+h . esp/eng/ru
+- W2i . c+h . ESP/eng/ru
 
 - Main fandoms : Honkai: Star Rail . Genshin Impact . Cookie Run: Kingdom 
 
